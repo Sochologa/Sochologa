@@ -1,5 +1,6 @@
-# Mari Lin <img src="cherrysakura84_logo.gif"> <img src="planetheart.gif">
-HI ☆*: .｡. o(≧▽≦)o .｡.:*☆
+<img src="cherrysakura84_logo.gif"> <img src="planetheart.gif">
+
+**HI ☆*: .｡. o(≧▽≦)o .｡.:*☆**
 
 ```
 ╔══════════════════════════════════════════════╗
