@@ -21,7 +21,7 @@
 
 ## Digital Artist & Sociologist 🎨
 > **🎯 Founder & Creative Director at Brutales XYZ (Est. 2022)**
-- 🎬 3D Animator - "Where the Two Seas Meet" ([Watch Here](https://festregards.com/2024/10/25/where-the-two-seas-meet-dir-motaz-h-matar/))
+- 🎬 Former 3D project - "Where the Two Seas Meet" ([Watch Here](https://festregards.com/2024/10/25/where-the-two-seas-meet-dir-motaz-h-matar/))
 
 > **📚 Social Scientist - UNMSM**
 - ✍🏼 Member of ([Centro Patria - Estudios de la Realidad Peruana](https://centropatria.pe/public/))
