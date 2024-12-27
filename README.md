@@ -29,7 +29,7 @@
 ## Professional Experience 💼
 > **INGENIUM Engineering and Construction**
 - Social Manager
-- November 2023 - June 2024
+- November 2023 - December 2024
 
 > **INSIDEO**
 - Social Specialist
